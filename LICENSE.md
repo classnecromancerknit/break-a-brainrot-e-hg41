@@ -1,4 +1,4 @@
-#  
+#  Experience break a brainrot egg like never before with break a brainrot egg updated Script, the #1 Script. Includes teleport and auto-upgrade for
 
 
 
